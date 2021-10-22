@@ -1,3 +1,4 @@
-Once upon a time there was a princess and she was really mean. She often would (verb) her (nouns) as part of her morning ritual. 
-Emily had a (family member) who was very (adjective), in fact the (superlative)(adjective)(noun) in the entire Kingdom.
-The Kingdom, and yes, the princess, was eager to hear from the land of the (noun). They did not get along because of the (noun) the princess crashed. Finally, on the full (adjective) Moon on a very (adjective) night. The messenger (name) was at the gate. The entire kingdom (adverb) preparing for news. 
+Once upon a time there was a princess and she was really mean. She often would record her passwords as part of her morning ritual. 
+Emily had a estranged-4th-cousin who was very tricky, in fact the most adept hacker in the entire Kingdom.
+The Kingdom, and yes, the princess, was eager to hear from the land of the secure tokens. But They did not get along because the princess' encryption crashed. Finally, on the full syzergy Moon on a very clear night, The messenger Pablo was at the gate. The entire kingdom grimaced preparing for news.
+"Lo! You've all been breached! It was that tricky hacker Estranged-4th-Cousin who launched an error-based SQL injection on our front-end form! Have a nice life!"
