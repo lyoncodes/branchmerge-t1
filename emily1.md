@@ -1,2 +1,2 @@
 Once upon a time there was a princess and she was really mean. She often would (verb) her (nouns) as part of her morning ritual. 
-Emily had a (family member) who was very (adjective), in fact the (superlative)(adjective)(noun) in the entire Kingdom.
+Emily had a (family member) who was very (adjective), in fact the (superlative)(adjective)(noun) in the entire Kingdom. The Kingdom, and yes, the princess, was eager to hear from the land of the (noun). They did not get along because of the (noun) the princess crashed. Finally, on the full (adjective) Moon on a very (adjective) night. The messenger (name) was at the gate. The entire kingdom (adverb) preparing for news. 
