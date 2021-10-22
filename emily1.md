@@ -1,1 +1,2 @@
 Once upon a time there was a princess and she was really mean. She often would (verb) her (nouns) as part of her morning ritual. 
+Emily had a (family member) who was very (adjective), in fact the (superlative)(adjective)(noun) in the entire Kingdom.
