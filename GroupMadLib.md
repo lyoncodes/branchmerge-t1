@@ -9,6 +9,7 @@ That following day Pablo the (adjective) messenger had (adverb) woke up late, "n
  
 She told him if he was late one more time he was fired. If that wasn’t bad enough, his boss was the princess. Pablo REALLY needed this gig, and he knew this was his last chance. He thought to himself.. "If I could just catch this hacker.. I would never have to work again!" He would spend the rest of his days (verb) with the (nouns). First, Pablo had to catch this hacker. He quiety sat in his (adjective) chair and kept his head down and began to think. He needed the reward all to himself. He had to do this one solo. "I want out" Pablo Said, and he had the most (adjective) plan...
 
+While Pablo was busy planning, the princess was busy (verb). She was not about to leave her fate solely in the hands of (article) (adjective) (noun) like Pablo. He didn't even know how to use an alarm.  The princess went to the royal (noun) and started (verb) the (noun(s)). If worse came to worse, the (noun(s)) would help her execute her plan.
 ---
 *Authors:*  
 Emily Brune | Jeremy Robinson | Matt Felker | Michael Lyon
